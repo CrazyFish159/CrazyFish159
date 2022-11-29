@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CrazyFish159
+- 👀 I’m interested in: discord bot development!
+- 📫 How to reach me: discord: !Crazy~Fish#3670
